@@ -1,0 +1,1 @@
+kurang koma dan amer
